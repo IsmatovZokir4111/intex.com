@@ -1,2 +1,2 @@
 # intex.com
-brinchi ish
+birinchi ish
